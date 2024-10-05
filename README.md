@@ -6,6 +6,6 @@
 - 🔭 I’m currently pursuing my B.Tech in JIIT Noida.
 - ⚡ On hand project: *soon*.
 - ⚡ Fun fact: I'm Super Duper Noob! HAHA!
-- ⚡ Insta:- [LavSakari](https://instagram.com/prashant_garg_0007)
+- ⚡ Insta:- [Prashant Garg](https://instagram.com/prashant_garg_0007)
 
 
